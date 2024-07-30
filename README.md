@@ -14,4 +14,4 @@
 
 ### Mauro Trillos
 
-### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/mauro-trillos-williams-7b89521b4/)
+### Linkedin: (https://www.linkedin.com/in/mauro-trillos-williams-7b89521b4/)
